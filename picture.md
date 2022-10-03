@@ -1,1 +1,0 @@
-![Algoritm](C:\Users\Admin\Documents\Итоги блока.jpg)
